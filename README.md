@@ -1,15 +1,59 @@
-˚ ༘♡ ⋆｡˚ 𝐌ost of the time i prefer to sit alone, but sometimes i might be sitting with friends.
+<div align="center">
 
-˚ ༘♡ ⋆｡˚ 𝐖2I preferred, i go AFK and offtab a lot, expect delayed responses.
 
-˚ ༘♡ ⋆｡˚ 𝐒emi-verbal, but i’ll try my best to match your energy.
+✧˚ · .*ೃ **mischvv** ˚꒷⭑⋆  
 
-˚ ༘♡ ⋆｡˚ -12 & +18 interact with care/caution.
+</div>
 
-˚ ༘♡ ⋆｡˚ 𝐖on't initiate first, unless i’m feeling a bit courageous.
+---
 
-˚ ༘♡ ⋆｡˚ 𝐂+H always okay, even if not stated (unless i'm on dniuf / dniuc / dniuid).
+##  ˚₊‧꒰ა Pony Town stuff ໒꒱ ‧₊˚
 
-  ↳ i have heavy cudcomf, company is always welcome ♡
+> ˚ ༘♡ ⋆｡˚ 𝐌ost of the time i prefer to sit alone, but sometimes i might be sitting with friends.  
 
-  ↳ i don’t talk much when sitting with someone, but i don’t mind whisps.
+> ˚ ༘♡ ⋆｡˚ 𝐖2I preferred — i go AFK and off-tab a lot, expect a late response.  
+
+> ˚ ༘♡ ⋆｡˚ 𝐒emi-verbal, but i always try my best to match your energy.  
+
+> ˚ ༘♡ ⋆｡˚ -12 and +18 interact with caution.  
+
+> ˚ ༘♡ ⋆｡˚ 𝐈 won't initiate interactions first unless i'm feeling courageous.  
+
+---
+
+##  ˚₊‧꒰ა Comfort Section ໒꒱ ‧₊˚
+
+> ˚ ༘♡ ⋆｡˚ C+H is **always okay**, even if not stated  
+
+>   ⤿ (unless i'm on dniuf / dniuc / dniuid)  
+
+> ˚ ༘♡ ⋆｡˚ heavy cud-comf & love quiet company  
+
+> ˚ ༘♡ ⋆｡˚ i rarely talk when sitting, but i don’t mind whispers  
+
+> ˚ ༘♡ ⋆｡˚ if i need to leave, i'll do the shaking-head emote  
+
+---
+
+##  ˚₊‧꒰ა DNI ໒꒱ ‧₊˚
+
+˚ ༘♡ ⋆｡˚ weird / overly flirty vibes  
+
+˚ ༘♡ ⋆｡˚ people who talk about 18+ topics 
+
+---
+
+## ༘⋆📼˚ My Spotify Playlist  
+<div align="center">
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4A6vvgO55doQbOeXpogsA3?utm_source=generator" width="100%" height="352" frameborder="0" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+</div>
+
+---
+
+<div align="center">
+
+꒰ა ♡ ໒꒱ thanks for reading ~
+
+</div>
