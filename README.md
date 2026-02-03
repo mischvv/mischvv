@@ -43,16 +43,15 @@
 
 ---
 
-## ༘⋆📼˚ My Spotify Playlist  
+## 🎧 My Spotify 
 
 <p align="center">
-  <a href="https://open.spotify.com/playlist/4A6vvgO55doQbOeXpogsA3?utm_source=generator">
-    <img src="https://i.scdn.co/image/ab67616d0000b2734a6vvgO55doQbOeXpogsA3" alt="Spotify Playlist" width="300"/>
+  <a href="https://open.spotify.com/user/316ghzudk2bbebpyk7jurqcrhvdu">
+    <img src="https://i.scdn.co/image/ab676userimageexample" alt="Spotify Profile" width="200"/>
   </a>
+  <br>
+  Click to visit my Spotify profile!
 </p>
-
----
-
 <div align="center">
 
 ꒰ა ♡ ໒꒱ thanks for reading ~
