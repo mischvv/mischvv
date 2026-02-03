@@ -15,7 +15,7 @@
 
 > ˚ ༘♡ ⋆｡˚ 𝐒emi-verbal, but i always try my best to match your energy.  
 
-> ˚ ༘♡ ⋆｡˚ -12 and +18 interact with caution.  
+> ˚ ༘♡ ⋆｡˚ -13 and +18 interact with caution.  
 
 > ˚ ༘♡ ⋆｡˚ 𝐈 won't initiate interactions first unless i'm feeling courageous.  
 
