@@ -44,11 +44,12 @@
 ---
 
 ## ༘⋆📼˚ My Spotify Playlist  
-<div align="center">
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4A6vvgO55doQbOeXpogsA3?utm_source=generator" width="100%" height="352" frameborder="0" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
-
-</div>
+<p align="center">
+  <a href="https://open.spotify.com/playlist/4A6vvgO55doQbOeXpogsA3?utm_source=generator">
+    <img src="https://i.scdn.co/image/ab67616d0000b2734a6vvgO55doQbOeXpogsA3" alt="Spotify Playlist" width="300"/>
+  </a>
+</p>
 
 ---
 
