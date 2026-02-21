@@ -17,7 +17,9 @@
 
 > ˚ ༘♡ ⋆｡˚ -13 and +18 interact with caution.  
 
-> ˚ ༘♡ ⋆｡˚ 𝐈 won't initiate interactions first unless i'm feeling courageous.  
+> ˚ ༘♡ ⋆｡˚ 𝐈 won't initiate interactions first unless i'm feeling courageous.
+
+> ˚ ༘♡ ⋆｡ 𝒩ot too keen on small talk
 
 ---
 
