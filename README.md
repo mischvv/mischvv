@@ -19,7 +19,7 @@
 
 > ˚ ༘♡ ⋆｡˚ 𝐈 won't initiate interactions first unless i'm feeling courageous.
 
-> ˚ ༘♡ ⋆｡ 𝒩ot too keen on small talk
+> ˚ ༘♡ ⋆｡˚ 𝐍ot too keen on small talk
 
 ---
 
